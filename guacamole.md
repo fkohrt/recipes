@@ -11,3 +11,4 @@
 
 1. First, cut open the avocado.
 2. Empty it with a spoon.
+3. Put it into a bowl
